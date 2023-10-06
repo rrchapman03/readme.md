@@ -1,5 +1,5 @@
 # readme.md
-![Bridges at Index, Washington](https://rrchapman.us/wp-content/uploads/2020/10/Bridges-at-Index-Washington.jpg)  
+![Bridges at Index, Washington](https://i0.wp.com/rrchapman.us/wp-content/uploads/2020/10/Bridges-at-Index-Washington.jpg)  
 
 **Readme file for Robert Chapman**  
 
